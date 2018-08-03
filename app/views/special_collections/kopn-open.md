@@ -1,4 +1,4 @@
-# KOPN Freeform Community Radio in the Era of the 1/4 Inch Tape Reel, 1973 - 1991
+# The 1/4 Inch Tape Reel at KOPN Community Radio, 1973 - 1991
 
 ## Thumbnail
 
@@ -6,7 +6,7 @@
 
 ## Summary
 
-<em>KOPN Freeform Community Radio, 1973 - 1991</em> contains ___ original audio clips broadcasted on the Columbia, Missouri community radio station KOPN 89.5 that were recorded on 1/4 inch magnetic audio tape. The collection highlights the radio station as a nexus where Columbia's interests in politics, health, entertainment, culture, and the environment instersected throughout the period.     
+<em>The 1/4 Inch Tape Reel at KOPN Community Radio, 1973 - 1991</em> contains ___ original audio clips broadcasted on the Columbia, Missouri community radio station KOPN 89.5 that were recorded on 1/4 inch magnetic audio tape. The collection highlights the radio station as a nexus where Columbia's interests in politics, health, entertainment, culture, and the environment instersected throughout the period.      
 
 raw interviews from the <em>American Experience</em> documentary of the same name. The film documents the six-month period from May to November 1961, when white and black activists rode together on buses across the American South to protest the continued segregation of public buses and transportation facilities. Risking attack from white mobs and arrest by local police, the documentary chronicles the reality of the Freedom Riders' experiences and success at calling attention to southern indifference to federal law and demanding enforcement of integrated interstate bus travel. The <em>Freedom Riders</em> interviews were conducted with activists and journalists who took part in the Freedom Rides, including John Lewis, a key player in the Civil Rights Movement and a member of the House of Representatives; Diane Nash, a coordinator for Freedom Riders in Nashville; Moses Newson, a journalist who covered the first Freedom Ride; John Seigenthaler, a Special Assistant to Robert F. Kennedy; and Genevieve Hughes Houghton, Congress of Racial Equality (CORE) field secretary on their Freedom Ride. Subjects discussed include the Supreme Court, the American South, Jim Crow, the Ku Klux Klan, violence, racism, segregation, CORE, and the Civil Rights Movement.
 
